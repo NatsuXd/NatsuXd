@@ -2,7 +2,9 @@
 - 👀 I’m interested in ..
 - Objetivos profissionais 
 Cargo desejado Informática, TI, Telecomunicações ¬ Informática Montagem e Manutenção de Micros Suporte Técnico e etc…
-Habilidades
+
+
+My skills
  
 •	Visão no cliente 
 •	Compreensão interpessoal e empatia  
